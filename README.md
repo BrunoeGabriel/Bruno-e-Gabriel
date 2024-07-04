@@ -10,4 +10,7 @@ Meu nome é Bruno e meu amigo é Gabriel
 
 @Bruno_263_silva_yt
 
-![](https://media1.tenor.com/m/ssA9ZQag3Z0AAAAd/dwayne-johnson.gif)
+Estarei online para conversar pelo Instagram!
+
+![](https://media1.tenor.com/m/bnarFGvpLjkAAAAd/the-rock-the-rock-meme.gif)
+ 
