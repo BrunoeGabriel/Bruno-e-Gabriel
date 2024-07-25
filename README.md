@@ -3,6 +3,7 @@
 Meu nome é Bruno e meu amigo é Gabriel
 
 - Estou estudando na [Alura](https://www.alura.com.br)
+- Aperte aqui [Alura](https://editor.p5js.org/brunoezequias/sketches/d0jHH0nn3)
 - Estou me desenvolvendo na linguagem JavaScript
 - Utilizo esse espaço para minha organização e compartilhamento dos meus projetos desenvolvidos
 
