@@ -11,7 +11,7 @@ Meu nome é Bruno e meu amigo é Gabriel
 
 @Bruno_263_silva_yt
 
-Estarei online para conversar pelo Instagram!
+Estarei online para conversar no Instagram!
 
 ![](https://media1.tenor.com/m/bnarFGvpLjkAAAAd/the-rock-the-rock-meme.gif)
  
